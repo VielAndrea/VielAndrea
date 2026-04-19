@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VielAndrea. 
 - 👀 I’m interested in exploring new skills to learn.
-- 🌱 I’m currently learning GIS and AI courses.
+- 🌱 In pursue of learning data analytics for researcher.
 - 💞️ I’m looking to collaborate on (not sure yet). 
 - 📫 How to reach me: 📩 acbdoviel@gmail.com.
 - 😄 Pronouns: she/her
